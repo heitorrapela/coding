@@ -1,1 +1,0 @@
-The translation of some questions were hard to understand, so I will go to the ones that already have english version xD
